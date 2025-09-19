@@ -1,0 +1,2 @@
+# Masline-Masline-Electronics-transistor-supplier-Masline-Electronics-IC-distributor
+Masline Electronics is a trusted transistor supplier and IC distributor, offering authentic, manufacturer-approved components at competitive prices. With vast inventory, bulk discounts, and fast global shipping, Masline supports engineers, OEMs, and procurement teams with reliable sourcing and cost-effective solutions.
